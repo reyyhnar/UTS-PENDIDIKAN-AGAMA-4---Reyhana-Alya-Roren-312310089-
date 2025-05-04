@@ -1,5 +1,1 @@
-# UTS-PENDIDIKAN-AGAMA-4---Reyhana-Alya-Roren-312310089-
-UTS PENDIDIKAN AGAMA 4
-Nama : Reyhana Alya Roren
-Kelas : TI.23.CA.1
-Nim : 312310089
+# UTS-PENDIDIKAN-AGAMA-4---Reyhana-Alya-Roren-312310089
